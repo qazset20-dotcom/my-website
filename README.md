@@ -1,1 +1,1 @@
-Gitam Deemed to Be University's official website
+Supreme Court of India's official website
